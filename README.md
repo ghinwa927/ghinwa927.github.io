@@ -1,1 +1,0 @@
-# ghinwa927.github.io
